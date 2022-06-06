@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[image of the arabic word bismillah](https://2.bp.blogspot.com/-vGi-CQQrGxE/W3_xjEC-jfI/AAAAAAAAAog/M0KdoDO6b-40jMGvn7QTyMVY_QRsur3NQCLcBGAs/s1600/Arabic%2BCalligraphy%2Bof%2BBismillah%2Bthe%2Bfirst%2Bverse%2Bof%2BQuran%2B%2Btranslated%2Bas%2Bn%2Bthe%2Bname%2Bof%2BGod%2B%2Bthe%2Bmerciful%2B%2Bthe%2Bcompassionate.png)
