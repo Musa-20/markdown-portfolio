@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+:grin: Nice to meet you
+:book: The climb has begun
