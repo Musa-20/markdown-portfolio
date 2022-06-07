@@ -1,2 +1,2 @@
-:grin: Nice to meet you
-:book: The climb has begun
+* :grin: Nice to meet you
+* :book: The climb has begun
